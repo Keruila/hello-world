@@ -1,3 +1,4 @@
 # hello-world
 Just the first
-Just the first try!
+open the door!
+my english is poor
